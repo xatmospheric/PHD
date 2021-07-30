@@ -1,2 +1,2 @@
-# PhD Dissertation Materials
+# PhD Intelligence-Focused Dissertation Materials
 
